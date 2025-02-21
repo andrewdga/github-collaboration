@@ -1,3 +1,4 @@
+merge conflict 💀
 Good
 I am getting hungry.... what to have for dinner?
 Brady wuz here
